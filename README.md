@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on simples and funny projects.
 - 📫 How to reach me 🐣Instagram: <b> @danny_pinguin </b> 🦋E-mail: melisymaga@gmail.com 
 - 😄 Pronouns: She / Her
-- ⚡ Fun fact: I´m going to be a computer science engineer, I love crocheting, books, penguins 🐧🐧🐧 and anime. I´m a mexican young girl btw :).
+- ⚡ Fun fact: I love crocheting, books, penguins 🐧🐧🐧 and anime :)
 
 <!---
 MissMoriarty/MissMoriarty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
